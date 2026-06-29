@@ -13,7 +13,7 @@
 ㅤㅤㅤ  
            ྀི︶  ˚̣̣̣    ྀི◟ ͜ ◞˚̣̣̣ ྀི   ︶𓏴︶˚̣̣̣   ྀི◟ ͜ ◞˚̣̣̣   ྀི ︶
 
-[Rentry](https://rentry.co/alan8970/export-page?format=webp&quality=100&width=1140&theme=light) ˃ 𖥦 ˂
+[Rentry](https://rentry.co/alan8970) ˃ 𖥦 ˂
 
 [Pinterest](https://pin.it/d5y2eb1Pi) ꒰ ᐢ ◞‸◟ᐢ꒱
 
